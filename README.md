@@ -1,5 +1,5 @@
 <div align="center">
-  <img src="https://i.pinimg.com/originals/74/63/d7/7463d78d184c43bb878ee9b63d5e8652.gif" weight="150" alt="попа">
+  <img src="https://i.pinimg.com/originals/40/fa/14/40fa14db143c6066e9cf24af93daef76.gif" weight="150" alt="попа">
 </div>
 
 <div align="center">
