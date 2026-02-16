@@ -1,5 +1,5 @@
 
 
-<img src="https://i.pinimg.com/originals/1b/3b/88/1b3b889d8e0de7767aada2724ff99e74.gif">
+<img src="https://i.pinimg.com/originals/74/63/d7/7463d78d184c43bb878ee9b63d5e8652.gif">
 
 Хранитель хайпа. Босс сваги. Император вареников с капустой. Амбассадор флэша. #Бог #CEO #АНТИХАЙП
